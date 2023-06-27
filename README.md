@@ -9,7 +9,7 @@ ___
 >Voltei anos depois a mexer com o meu velho amigo **Photoshop** e também comecei a aprender fotografia, acabei fazendo alguns trabalhos, mas ainda não era isso que eu queria.
 >Hoje estou correndo atrás do prejuízo do tempo, no dia que estou escrevendo esse texto estou com *27 anos de idade*.
 >
->Comecei uma graduação :mortar_board: em *Análise e desenvolvimento de Sistemas* e estou decido a entrar no mercado de tecnologia, mundo esse que sempre fui apaixonado.
+>Comecei uma graduação :mortar_board: em *Análise e desenvolvimento de Sistemas* e estou decidido a entrar no mercado de tecnologia, mundo esse que sempre fui apaixonado.
 >O mais importante é começar não importando a idade, seja ela acima ou abaixo da média. **Comece!**
 
 ___
